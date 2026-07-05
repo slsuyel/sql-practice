@@ -1,2 +1,1 @@
-﻿# sql-practice
-l]8F<Bj&IEI>@|nE1
+
